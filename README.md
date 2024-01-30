@@ -1,16 +1,12 @@
-### Hi there 👋
+⭐ Hola soy Fernando
+<br>
+‼️ Tonto en Potencia
+<br>
+🍞 Spiderman y Batman en las noches (aveces)
+<br>
+⛔ Psicologo las 17/5 horas al dia gratuitamente
+<br>
+😦 Soy prieto pero soy prieto
+<br>
+☢️ Borra tu cuenta
 
-<!--
-**FernaandoAriel/FernaandoAriel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
