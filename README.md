@@ -9,4 +9,8 @@
 😦 Soy prieto pero soy prieto
 <br>
 ☢️ Borra tu cuenta
+<br>
+💋 Taylor`s Version (diabolo)
+<br>
+MCM 💜💚
 
